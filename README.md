@@ -11,3 +11,4 @@ pple Watch Series 6 - 44mm - 2020-11-15 at 19 14 00](https://user-images.githubu
 ![Simulator Screen Shot - Apple Watch Series 6 - 44mm - 2020-11-15 at 19 14 14](https://user-images.githubusercontent.com/91852271/136473345-3622ef1b-b81f-4339-b4cd-0ef63372d5c2.png)
 ![Simulator Screen Shot - Apple Watch Series 6 - 44mm - 2020-11-15 at 19 14 21](https://user-images.githubusercontent.com/91852271/136473352-d8afdb9d-fd0e-4ca4-a14f-be87b3da0038.png)
 ![Simulator Screen Shot - Apple Watch Series 6 - 44mm - 2020-11-15 at 19 14 30](https://user-images.githubusercontent.com/91852271/136473356-34247cc5-050f-4c2e-8c8e-3e7386878ebd.png)
+![IMG_6634](https://user-images.githubusercontent.com/91852271/136474008-77800399-f623-4eec-a8d9-8c175755e01d.PNG)
